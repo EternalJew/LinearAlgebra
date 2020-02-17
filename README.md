@@ -7,4 +7,4 @@
 ![](https://i.ibb.co/VWVqVYG/photo5341562917100826705.jpg)
 # Homework №3
 ![](https://i.ibb.co/vJPWJc4/photo5357541200464292897.jpg)
-![](https://i.ibb.co/BVxp3n5/photo5357541200464292898.jpg)
+![](https://i.ibb.co/CJC3p5X/photo5357454141477203142.jpg)
